@@ -1,1 +1,2 @@
-# MY-Second-REPO
+pray pray pray  
+  syka plz
